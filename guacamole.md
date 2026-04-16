@@ -1,6 +1,6 @@
 #Guacamole
 ## Ingredients
-* avocado 
-* lime
-* salt
+* avocado - 4€ 
+* lime    - 1€
+* salt    - 0.99€
 ## Instructions
